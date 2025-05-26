@@ -113,3 +113,4 @@ Instructions:
 6. Stir in chocolate chips.
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
+9. let cool 
