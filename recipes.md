@@ -62,7 +62,7 @@ Ingredients:
 - 1 jar (24 oz) spaghetti sauce
 
 Instructions:
-1. Cook spaghetti according to package instructions.
+1. Cook spaghetti according to aldante.
 2. In a mixing bowl, combine ground beef, bread crumbs, milk, Parmesan cheese, egg, garlic, salt, and pepper.
 3. Form mixture into meatballs.
 4. In a large skillet, brown meatballs over medium-high heat.
